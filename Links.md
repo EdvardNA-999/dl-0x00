@@ -2,6 +2,12 @@
  Click on any link below to start downloading directly.
 
 
+### 📅 2026-04-27 11:07 (IR Time)
+- 📥 **[FigmaSetup.exe.zip](https://github.com/EdvardNA-999/dl-0x00/raw/main/dl/FigmaSetup.exe.zip)**
+- 📥 **[FigmaSetup.exe.z01](https://github.com/EdvardNA-999/dl-0x00/raw/main/dl/FigmaSetup.exe.z01)**
+- 📥 **[FigmaSetup.exe.zip](https://github.com/EdvardNA-999/dl-0x00/raw/main/dl/FigmaSetup.exe.zip)**
+
+
 ### 📅 2026-04-27 09:42 (IR Time)
 - 📥 **[Deejay-Moein-Reverb-03-320.mp3](https://github.com/EdvardNA-999/dl-0x00/raw/main/dl/Deejay-Moein-Reverb-03-320.mp3)**
 
